@@ -2,9 +2,8 @@
 Making coffee has become a small but essential ritual in my daily routine. It’s not just about drinking caffeine, but also about enjoying the process of preparing it. In this guide, i will share how i usually make my everyday coffee in a simple, practical and of course affordable way!!
 
 ## Table of Contents
-
--[What to Buy](#WhattoBuy)
--[How to Make](#HowtoMake)
+- [What to Buy](#What-to-Buy)
+- [How to Make](#How-to-Make)
 
 ## What to Buy
 Here are the things i usually use:

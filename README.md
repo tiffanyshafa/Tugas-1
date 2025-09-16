@@ -20,4 +20,4 @@ Here are the things i usually use:
 3. Stir well.
 4. Add some ice cubes
 5. Pour in 200ml of Oatside Oat Milk. (I like it not too sugary, and this milk already sweet enough!)
-6. My kind of everyday Coffee is ready to boost my energy!!☕✨
+6. My kind of everyday coffee is ready to boost my energy!!☕✨

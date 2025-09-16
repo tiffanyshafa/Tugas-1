@@ -1,11 +1,11 @@
-# How to Make My Everyday Coffee!
-Making coffee has become a small but essential ritual in my daily routine. It’s not just about drinking caffeine, but also about enjoying the process of preparing it. In this guide, i will share how i usually make my everyday coffee in a simple, practical and of course affordable way!!
+# How to Make My Everyday Coffee!𓂃.☘︎ ݁˖
+Making coffee has become a small but essential ritual in my daily routine. It’s not just about drinking caffeine, but also about enjoying the process of preparing it. In this guide, i will share how i usually make my everyday coffee in a simple, practical and of course affordable way!!˶ᵔᵕᵔ˶
 
-## Table of Contents
+## Table of Contents ˚♡˚₊‧⁺
 - [What to Buy](#What-to-Buy)
 - [How to Make](#How-to-Make)
 
-## What to Buy
+## What to Buy ˖ִ ࣪⚝₊ ⊹
 Here are the things i usually use:
 - a mug/cup/glass ☕
 - a spoon 🥄
@@ -14,7 +14,7 @@ Here are the things i usually use:
 - 1 Oatside Oat Milk 200ml 🥛
 - Ice Cubes 🧊
 
-## How to Make
+## How to Make ⋆˙⟡
 1. Put 1 sachet of Nescafe Ice Roast 2gr into a mug. (Sometimes when i want the coffee to be stronger, i use 2 sachets.)
 2. Pour some water into the mug. (It's okay if the water is not hot, Nescafe Ice Roast will dissolve in cold water.)
 3. Stir well.
